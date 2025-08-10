@@ -1,5 +1,5 @@
 # Ships <3
-Shadamy/Shadouge!!!!/ Sonamy/Blazamy/silvaze/MEPHINITE <3/ Sonally, etc that i cant think of rn ask me omg 
+Shadamy/Shadouge!!!!/ Sonamy/Blazamy/SONAZEE/silvaze/MEPHINITE <3/ Sonally, etc that i cant think of rn ask me omg 
 
 { Due to my kins, Shadouge + mephinite are my comfort ships. if you cant handle that, please dni with me..}
 
